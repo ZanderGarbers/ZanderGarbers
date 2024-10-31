@@ -1,0 +1,3 @@
+- Hi, I’m Zander Garbers
+- I’m an aspiering wed devoper and programer. I am currently working on familiarizing myself with the industry while simultaniously filling my portfolio with useful skills.
+- If you would like to reach me, email me at @zander.garbers@gmail.com and specify how you came across my name.
